@@ -5,9 +5,9 @@ Hạt Giống Hoa Baby trắng với từng cánh hoa li ti bé xíu mỏng manh
 
 - Mỗi cô dâu chọn một bó hoa hồng rực đỏ kèm theo những điểm tô từ hoa Baby trắng li ti như bông tuyết sẽ góp phần tạo nên vẻ đẹp thanh tao và lãng mạn. Ngoài màu hoa trắng ngây thơ truyền thống thì hoa Baby còn có màu hồng ngọt ngào, tuy nhiên nó rất hiếm gặp.
 
-Liên hệ <a href="https://hatgiongphuongnam.com">shop hạt giống hoa</a> để mua các loại hạt giống tốt nhất.
+Liên hệ <a rel="dofollow" href="https://hatgiongphuongnam.com">shop hạt giống hoa</a> để mua các loại hạt giống tốt nhất.
 
-- Hoa baby xuất phát từ tên "Baby’s breath", có nghĩa là hơi thở trẻ thơ. Nó đẹp và mong manh như hơi thở trẻ thơ !
+- Hoa baby  xuất phát từ tên "Baby’s breath", có nghĩa là hơi thở trẻ thơ. Nó đẹp và mong manh như hơi thở trẻ thơ !
 
 - Bên cạnh đó Hạt Giống Hoa Baby trắng còn được rất nhiều cô nàng đáng yêu chọn lựa để bó một mình. Trong một tờ giấy báo đơn giản sẽ mang đến vẻ đẹp thuần khiết và vô cùng tinh tế. Loài hoa này tượng trưng cho ý nghĩa về tình yêu ngây thơ và trong trắng.
 
